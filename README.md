@@ -1,0 +1,1 @@
+# kuryufujii.github.io
